@@ -9,11 +9,11 @@
 - 1 cebola picada
 - 2 colheres (sopa) de maionese
 - 1 colher de manteiga
-- 1/2 [copo de ketchup](https://blog.tudogostoso.com.br/cardapios/ketchup-caseiro/)
+- 1/2 copo de ketchup
 - 1/3 copo de mostarda
 - 1 copo de cogumelos
 - 1 copo de creme de leite
-- [batata palha](https://blog.tudogostoso.com.br/cardapios/receitas-faceis/receitas-com-batata-palha/) a gosto
+- batata palha a gosto
 
 
 
@@ -25,10 +25,3 @@
 4. Adicione os cogumelos, o ketchup e a mostarda.
 5. Incorpore [o creme de leite e retire do fogo antes de ferver.
 6. Sirva com arroz branco e batata palha.
-
-
-
-
-
-
-
